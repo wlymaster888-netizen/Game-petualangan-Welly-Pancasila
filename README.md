@@ -1,1 +1,0 @@
-# Game-petualangan-Welly-Pancasila
